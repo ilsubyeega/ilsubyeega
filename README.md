@@ -1,1 +1,2 @@
-![Woah!](https://github.com/ilsubyeega/ilsubyeega/blob/master/screenshot-1.png)
+ㅇ.ㅇ
+i dunno what to say here tho
