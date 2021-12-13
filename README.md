@@ -1,2 +1,1 @@
-ㅇ.ㅇ
-i dunno what to say here tho
+<img src="https://raw.githubusercontent.com/ilsubyeega/ilsubyeega/master/Discord.svg"/>
